@@ -1,6 +1,10 @@
-Hello!![funny-walk-gif-10](https://user-images.githubusercontent.com/101361274/192088016-961c51c9-109e-4d5b-b405-94662780c62a.gif)
+Behold, My Github Profile! 
+Welcome :)
+[funny-walk-gif-10](https://user-images.githubusercontent.com/101361274/192088016-961c51c9-109e-4d5b-b405-94662780c62a.gif)
 
-=======================================================================================================================================
+![cute dogie](https://user-images.githubusercontent.com/101361274/192088461-15cae697-f396-44df-85f5-86151831c418.gif)
+
+
 
 ### Skills
 
