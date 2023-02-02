@@ -1,4 +1,4 @@
-Behold, My Github Profile! 
+Hey everyone!
 
 ![bluey5](https://user-images.githubusercontent.com/101361274/216289954-efdf50da-ef48-4232-a9ad-ad640be0a867.gif)
 
