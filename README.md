@@ -1,7 +1,7 @@
 Behold, My Github Profile! 
 
 
-![funny-walk-gif-10](https://user-images.githubusercontent.com/101361274/192088016-961c51c9-109e-4d5b-b405-94662780c62a.gif)
+
 
 
 
