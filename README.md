@@ -1,5 +1,5 @@
-Hey everyone!
-
+Hey there!
+[![trophy](https://github-profile-trophy.vercel.app/victoriasitati=ryo-ma)](https://github.com/ryo-ma/github-profile-trophy)
 ![bluey5](https://user-images.githubusercontent.com/101361274/216289954-efdf50da-ef48-4232-a9ad-ad640be0a867.gif)
 
 
