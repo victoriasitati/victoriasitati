@@ -1,7 +1,7 @@
 Hey there!
 
 
-[![trophy](https://github-profile-trophy.vercel.app/victoriasitati=ryo-ma)](https://github.com/ryo-ma/github-profile-trophy)
+![trophy](https://github-profile-trophy.vercel.app/victoriasitati=ryo-ma)](https://github.com/ryo-ma/github-profile-trophy)
 
 
 
